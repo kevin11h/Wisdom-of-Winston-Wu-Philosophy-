@@ -14,3 +14,6 @@ The Message of the Cross
 ![](https://i.redd.it/uzr9i1x983l51.jpg)
 
 https://www.reddit.com/r/JustBeAsian/comments/imbz4d/your_golden_guide_to_dating_up/
+
+# Winston Wu is a Compelling Writer Communicating Reflecting Inner Experiences Deep Instropection Rich Wisdom, despite all his faults failings idiosyncracies 
+## Women don't want rich men financially. Women want rich men spiritually.
