@@ -12,3 +12,5 @@ The Message of the Cross
 
 ## https://www.happierabroad.com/biography_short.htm
 ![](https://i.redd.it/uzr9i1x983l51.jpg)
+
+https://www.reddit.com/r/JustBeAsian/comments/imbz4d/your_golden_guide_to_dating_up/
