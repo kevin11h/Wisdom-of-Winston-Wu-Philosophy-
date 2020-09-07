@@ -8,5 +8,7 @@ The Message of the Cross
 
 ![](https://image.slidesharecdn.com/comeandseepowerpoint-161101161613/95/come-see-john-13551-5-638.jpg?cb=1478017132)
 
+# Asian Anti-thesis to Performative Western Masculinity - Paradox and futility of self-sufficiency self-improvement self-perfection
 
+## https://www.happierabroad.com/biography_short.htm
 ![](https://i.redd.it/uzr9i1x983l51.jpg)
