@@ -17,3 +17,5 @@ https://www.reddit.com/r/JustBeAsian/comments/imbz4d/your_golden_guide_to_dating
 
 # Winston Wu is a Compelling Writer Communicating Reflecting Inner Experiences Deep Instropection Rich Wisdom, despite all his faults failings idiosyncracies 
 ## Women don't want rich men financially. Women want rich men spiritually.
+
+discussion forum followup http://www.evilyoshida.com/thread-7878.html
